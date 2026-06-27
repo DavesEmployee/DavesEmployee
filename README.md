@@ -1,1 +1,1 @@
-latest StableBox link: https://meal-period-dynamic-lenders.trycloudflare.com
+latest StableBox link: https://carmen-constraints-knives-str.trycloudflare.com
