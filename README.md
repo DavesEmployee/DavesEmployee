@@ -1,1 +1,1 @@
-latest StableBox link: https://carmen-constraints-knives-str.trycloudflare.com
+latest StableBox link: https://passage-clients-clause-avoid.trycloudflare.com
